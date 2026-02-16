@@ -1,1 +1,1 @@
-# PetalNotes
+# PetalNotes Co.
